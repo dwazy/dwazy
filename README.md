@@ -1,0 +1,1 @@
+ben kendi hayatimin tanrisiyim
